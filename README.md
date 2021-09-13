@@ -18,7 +18,7 @@ Is it a nuisance to send huge files to others.File To Link Bot is for you.This b
 ```
 Thakshaka Rathnayake 
  
-©️2021 TeLe TiPs All Rights Reserved
+©️2021 WidoxLK All Rights Reserved
  
 Powered by #AAQ
 ```
